@@ -1,1 +1,1 @@
-# yale.github.io
+# yaleee.github.io
